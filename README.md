@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bortolotti93, Alessandro Bortolotti 
-- 👀 I’m interested in Cognitive Psychology, in particular study modulated attentional processes of emotions.
+- 👀 I’m interested in Cognitive Psychology, in particular the study modulated attentional processes of emotions.
 - 🌱 I’m currently learning marketing e decision-making
 - 📫 How to reach me: alessandro-bortolotti@outlook.com
 
